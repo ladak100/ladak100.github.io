@@ -1,4 +1,4 @@
-# Today I
+# Today, I
 ## March 2024
 ### 16
 - Today, I set up my website
