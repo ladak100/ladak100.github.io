@@ -1,5 +1,5 @@
 ### Books
-I am illiterate. From 2010-2022, I did not read a single book. Here are the books I have read since then, in order of recency.
+I am illiterate. From 2010-2022, I did not read a single book. Here are the books I have read since then, in order of recency. My favourite book is __Le Petit Prince__
 #### 2024
 - [Le Petit Prince](https://www.google.com/books/edition/The_Little_Prince/CQYg20lTHtMC?hl=en)
   - hardcover
