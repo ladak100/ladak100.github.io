@@ -1,5 +1,14 @@
 ### Today, I...
 #### March 2024
+Sunday March 17th, 2024
+- Today, I biked to the library
+- Today, I started reading the airman's odyssey
+- Today, I shopped at trader joe's
+- Today, I did laundry
+- Today, I watched a friend demo his software
+- Today, I helped a friend with his portfolio
+- Today, I was sad because the neighbour's dog keeps crying
+
 Saturday March 16th, 2024
 - Today, I set up my website
 - Today, I caulked the baseboard to the floors in my bedroom to stop the [argentine ants](https://en.wikipedia.org/wiki/Argentine_ant#Global_%22mega-colony%22)
