@@ -1,5 +1,10 @@
 ### Today, I...
 #### March 2024
+Monday March 18th, 2024
+- Today, I biked to work
+- Today, I went to lunch with some co-workers
+- Today, I went to the gym
+
 Sunday March 17th, 2024
 - Today, I biked to the library
 - Today, I started reading the airman's odyssey
