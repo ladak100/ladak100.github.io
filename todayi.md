@@ -1,9 +1,16 @@
 ### Today, I...
 #### March 2024
+Wednesday March 20th, 2024
+- Today, I ate a lot of food
+- Today, I went to the gym
+- Today, I biked to the pharmacy
+- Today, I met with a very kind accountant
+
 Tuesday March 19th, 2024
 - Today, I had a very early morning meeting
 - Today, I biked into work
 - Today, I went to lunch with some co-workers
+- Today, I made spaghetti bolognese
 
 Monday March 18th, 2024
 - Today, I biked to work
