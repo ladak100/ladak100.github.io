@@ -1,5 +1,12 @@
 ### Today, I...
 #### March 2024
+Thursday March 21th, 2024
+- Today, I ate a lot of food
+- Today, I biked to the grocery store for more food
+- Today, I played a video game with a friend
+- Today, I called my mom
+- Today, I had lunch with my team
+
 Wednesday March 20th, 2024
 - Today, I ate a lot of food
 - Today, I went to the gym
