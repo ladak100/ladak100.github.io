@@ -1,5 +1,11 @@
 ### Today, I...
 #### March 2024
+Friday March 22th, 2024
+- Today, I went to the gym
+- Today, I bought and assembled a clothing rack
+- Today, I finished my taxes
+- Today, I almost hit a coyote and felt horrible the rest of the day
+
 Thursday March 21th, 2024
 - Today, I ate a lot of food
 - Today, I biked to the grocery store for more food
