@@ -6,6 +6,7 @@ Friday March 22th, 2024
 - Today, I finished my taxes
 - Today, I almost hit a coyote and felt horrible the rest of the day
 - Today, I found the source of the ticking in the walls
+- Today, I practiced a language
 
 Thursday March 21th, 2024
 - Today, I ate a lot of food
@@ -13,12 +14,14 @@ Thursday March 21th, 2024
 - Today, I played a video game with a friend
 - Today, I called my mom
 - Today, I had lunch with my team
+- Today, I practiced a language
 
 Wednesday March 20th, 2024
 - Today, I ate a lot of food
 - Today, I went to the gym
 - Today, I biked to the pharmacy
 - Today, I met with a very kind accountant
+- Today, I practiced a language
 
 Tuesday March 19th, 2024
 - Today, I had a very early morning meeting
