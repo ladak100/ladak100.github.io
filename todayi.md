@@ -5,6 +5,7 @@ Friday March 22th, 2024
 - Today, I bought and assembled a clothing rack
 - Today, I finished my taxes
 - Today, I almost hit a coyote and felt horrible the rest of the day
+- Today, I found the source of the ticking in the walls
 
 Thursday March 21th, 2024
 - Today, I ate a lot of food
