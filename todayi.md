@@ -4,6 +4,7 @@ Saturday March 23th, 2024
 - Today, I hiked the stanford dish loop
 - Today, I visited a monkey picture exhibit
 - Today, I cooked some pork tenderloin and rice
+- Today, I practiced a language
 
 Friday March 22th, 2024
 - Today, I went to the gym
