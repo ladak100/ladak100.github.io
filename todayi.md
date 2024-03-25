@@ -1,5 +1,10 @@
 ### Today, I...
 #### March 2024
+Sunday March 24th, 2024
+- Today, I called a friend
+- Today, I hiked the land's end trail with a friend
+- Today, I went for KBBQ with some friends
+
 Saturday March 23th, 2024
 - Today, I hiked the stanford dish loop
 - Today, I visited a monkey picture exhibit
