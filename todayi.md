@@ -1,5 +1,12 @@
 ### Today, I...
 #### March 2024
+Monday March 25th, 2024
+- Today, I called a friend
+- Today, I biked to usps and mailed my taxes
+- Today, I reviewed a friend's resume
+- Today, I almost got hit by a white suv making a right turn on middlefield ave
+- Today, I made honey soy chicken
+
 Sunday March 24th, 2024
 - Today, I called a friend
 - Today, I hiked the land's end trail with a friend
