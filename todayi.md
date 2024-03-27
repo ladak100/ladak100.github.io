@@ -1,5 +1,12 @@
 ### Today, I...
 #### March 2024
+Tuesday March 26th, 2024
+- Today, I biked to work
+- Today, I went to the gym
+- Today, I played ping pong
+- Today, I got my bike serviced
+- Today, I was bored in the evening
+
 Monday March 25th, 2024
 - Today, I called a friend
 - Today, I biked to usps and mailed my taxes
