@@ -1,5 +1,12 @@
 ### Today, I...
 #### March 2024
+Wednesday March 27th, 2024
+- Today, I biked to work
+- Today, I got caught in the rain on my bike ride back
+- Today, I planned a trip with some friends
+- Today, I called a friend to discuss his design portfolio
+- Today, I called another friend
+
 Tuesday March 26th, 2024
 - Today, I biked to work
 - Today, I went to the gym
