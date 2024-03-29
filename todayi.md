@@ -1,5 +1,10 @@
 ### Today, I...
 #### March 2024
+Thursday March 28th, 2024
+- Today, I biked to trader joe's
+- Today, I worked out at home
+- Today, I called my mommy and daddy
+
 Wednesday March 27th, 2024
 - Today, I biked to work
 - Today, I got caught in the rain on my bike ride back
