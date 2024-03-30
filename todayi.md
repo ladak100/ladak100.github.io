@@ -1,5 +1,13 @@
 ### Today, I...
 #### March 2024
+Friday March 29th, 2024
+- Today, I slept in
+- Today, I drove to the office
+- Today, I had lunch with some co-workers
+- Today, I had physical therapy
+- Today, I made the mistake of napping at 5pm
+- Today, I practiced a language
+
 Thursday March 28th, 2024
 - Today, I biked to trader joe's
 - Today, I worked out at home
