@@ -4,7 +4,7 @@ Sunday March 31st, 2024
 - Today, I fully hiked land's end trail with a friend
 - Today, I walked around the city
 - Today, I realized i need to wear sunglasses
-- Today, I did very little
+- Today, I was low energy and sad
 
 Saturday March 30th, 2024
 - Today, I antproofed the roof
