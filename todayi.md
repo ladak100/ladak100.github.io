@@ -2,6 +2,8 @@
 #### March 2024
 Sunday March 31st, 2024
 - Today, I fully hiked land's end trail with a friend
+- Today, I walked around the city
+- Today, I realized i need to wear sunglasses
 - Today, I did very little
 
 Saturday March 30th, 2024
