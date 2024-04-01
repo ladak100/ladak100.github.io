@@ -1,5 +1,17 @@
 ### Today, I...
 #### March 2024
+Sunday March 31st, 2024
+- Today, I fully hiked land's end trail with a friend
+- Today, I did very little
+
+Saturday March 30th, 2024
+- Today, I antproofed the roof
+- Today, I gave up on the airman's odyssey
+- Today, I biked to the library
+- Today, I went to get dinner with some acquantainces and hated it
+- Today, I sat in my car in the driveway for one hour
+- Today, I listened to the thunderstorm
+
 Friday March 29th, 2024
 - Today, I slept in
 - Today, I drove to the office
