@@ -2,9 +2,9 @@
 I am illiterate. From 2010-2022, I did not read a single book. Here are the books I have read since then, in order of recency. My favourite book is __Le Petit Prince__
 
 #### 2024
-- [The Airman's Odyssey](https://www.google.com/books/edition/Airman_s_Odyssey/nIOZdLHReUMC?hl=en)
+- [The Airman's Odyssey](https://www.google.com/books/edition/Airman_s_Odyssey/nIOZdLHReUMC?hl=en) __[WITHDREW]__
   - __hardcover__
-  - __WITHDREW:__ this book bored me to death. i couldnt deal with waxing poetic for 500 pages. his other book, le petit prince, is amazing, but i lack the iq and attention span to finish this one. i couldnt keep my focus - i kept getting distracted by this girl on the bus
+  - __why i quit:__ this book bored me to death. i couldnt deal with waxing poetic for 500 pages. his other book, le petit prince, is amazing, but i lack the iq and attention span to finish this one. i was so bored by this book, i only thought to read it on the bus, when i had nothing else to do, and even then i kept getting distracted by this pretty girl that takes the bus at the same time as me. i lasted not two chapters before quitting.
 - [Le Petit Prince](https://www.google.com/books/edition/The_Little_Prince/CQYg20lTHtMC?hl=en)
   - __hardcover__
   - __review:__ my favourite book i have ever read. i almost cried reading this book. i'm not sure how i would understand this book as a child. 
