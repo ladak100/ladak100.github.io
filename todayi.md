@@ -1,6 +1,16 @@
 ### Today, I...
+#### April 2024
+Tuesday April 2th, 2024
+- Today, I biked to work
+- Today, I went to the gym
+- Today, I went to lunch with a coworker
+
+Monday April 1th, 2024
+- Today, I biked to work
+- Today, I was able to run for the first time since i broke my leg
+
 #### March 2024
-Sunday March 31st, 2024
+Sunday March 31th, 2024
 - Today, I fully hiked land's end trail with a friend
 - Today, I walked around the city
 - Today, I realized i need to wear sunglasses
