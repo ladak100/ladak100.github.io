@@ -4,10 +4,12 @@ Tuesday April 2th, 2024
 - Today, I biked to work
 - Today, I went to the gym
 - Today, I went to lunch with a coworker
+- Today, I called my family
 
 Monday April 1th, 2024
 - Today, I biked to work
 - Today, I was able to run for the first time since i broke my leg
+- Today, I saw a very pretty girl on the bus
 
 #### March 2024
 Sunday March 31th, 2024
