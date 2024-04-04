@@ -1,5 +1,10 @@
 ### Today, I...
 #### April 2024
+Wednesday April 3th, 2024
+- Today, I flew to toronto
+- Today, I had some good conversations with the big guy i sat beside on the plane
+- Today, I started reading salt, fat, acid, heat
+
 Tuesday April 2th, 2024
 - Today, I biked to work
 - Today, I went to the gym
