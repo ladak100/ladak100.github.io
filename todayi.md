@@ -1,5 +1,12 @@
 ### Today, I...
 #### April 2024
+Thursday April 4th, 2024
+- Today, I took my dog for a walk with my sister
+- Today, I felt bad because my mom was sick
+- Today, I ate dinner with my family
+- Today, I played a board game called anomia with my family
+- Today, I felt great spending so much time with my family
+
 Wednesday April 3th, 2024
 - Today, I flew to toronto
 - Today, I had some good conversations with the big guy i sat beside on the plane
