@@ -1,5 +1,17 @@
 ### Today, I...
 #### April 2024
+Saturday April 6th, 2024
+- Today, I visited my grandparents aunts and uncles
+- Today, I took my dog to the vet
+- Today, I went to the salvation army with my sister
+- Today, I hung out with my family
+
+Friday April 5th, 2024
+- Today, I ate like crap
+- Today, I walked around, ate food, and visited my hs a couple friends i had not seen in years
+- Today, I walked around, ate food, and played pool with a few other friends in the evening
+- Today, I got home really late
+
 Thursday April 4th, 2024
 - Today, I took my dog for a walk with my sister
 - Today, I felt bad because my mom was sick
