@@ -1,5 +1,8 @@
 ### Today, I...
 #### April 2024
+Sunday April 7th, 2024
+- Today, I spent the whole day in kingston with my family
+
 Saturday April 6th, 2024
 - Today, I visited my grandparents aunts and uncles
 - Today, I took my dog to the vet
