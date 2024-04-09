@@ -1,5 +1,10 @@
 ### Today, I...
 #### April 2024
+Monday April 8th, 2024
+- Today, I spent the whole day in kingston with my family
+- Today, I watched the solar eclipse with my family, i had never seen anything like it
+- Today, I had a great day
+
 Sunday April 7th, 2024
 - Today, I spent the whole day in kingston with my family
 
