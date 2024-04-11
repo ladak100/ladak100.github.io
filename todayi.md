@@ -52,6 +52,7 @@ Monday April 1th, 2024
 - Today, I biked to work
 - Today, I was able to run for the first time since i broke my leg
 - Today, I saw a very pretty girl on the bus
+- Today, I shaved with a safety razor for the first time
 
 #### March 2024
 Sunday March 31th, 2024
