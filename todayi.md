@@ -1,5 +1,10 @@
 ### Today, I...
 #### April 2024
+Tuesday April 9th, 2024
+- Today, I took my dog for a walk
+- Today, I watched a show with my mom
+- Today, I failed to pump my bike tires
+
 Monday April 8th, 2024
 - Today, I spent the whole day in kingston with my family
 - Today, I watched the solar eclipse with my family, i had never seen anything like it
