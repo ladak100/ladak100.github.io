@@ -2,7 +2,7 @@
 #### April 2024
 Wednesday April 10th, 2024
 - Today, I took my dog for two walks
-- Today, I went to the gym with a friend
+- Today, I went to the gym with a friend and did not enjoy it
 
 Tuesday April 9th, 2024
 - Today, I spoke with a friend on the phone
