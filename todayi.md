@@ -5,6 +5,7 @@ Wednesday April 10th, 2024
 - Today, I went to the gym with a friend
 
 Tuesday April 9th, 2024
+- Today, I spoke with a friend on the phone
 - Today, I took my dog for a walk
 - Today, I watched a show with my mom
 - Today, I failed to pump my bike tires
