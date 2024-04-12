@@ -1,5 +1,10 @@
 ### Today, I...
 #### April 2024
+Thursday April 11th, 2024
+- Today, I took my dog for a walk in tbe rain
+- Today, I watched monkey man in theatres - the first hour was good
+- Today, I hung out with my family in the evening
+
 Wednesday April 10th, 2024
 - Today, I took my dog for two walks
 - Today, I went to the gym with a friend and did not enjoy it
