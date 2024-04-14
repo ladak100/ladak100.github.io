@@ -1,5 +1,15 @@
 ### Today, I...
 #### April 2024
+Saturday April 13th, 2024
+- Today, I went to st lawrence market and walked around aimlessly with friends
+- Today, I went to KBBQ with some other friends and watched somw individuals fight on the street
+- Today, I went to the theatre to watch ufc 300 with friends, it was really fun
+
+Friday April 12th, 2024
+- Today, I worked on campus with some friends
+- Today, I went to an escape room with my family
+- Today, I stayed out way too late with friends. nothing good happens after 3am
+
 Thursday April 11th, 2024
 - Today, I took my dog for a walk in tbe rain
 - Today, I watched monkey man in theatres - the first hour was good
