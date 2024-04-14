@@ -19,6 +19,7 @@ Friday April 12th, 2024
 
 Thursday April 11th, 2024
 - Today, I took my dog for a walk in tbe rain
+- Today, I was visited by my grandparents
 - Today, I watched monkey man in theatres - the first hour was good
 - Today, I hung out with my family in the evening
 
