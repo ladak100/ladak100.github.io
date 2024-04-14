@@ -1,9 +1,13 @@
 ### Today, I...
 #### April 2024
+Sunday, April 14th, 2024
+- Today, I felt sad in the morning
+
 Saturday April 13th, 2024
 - Today, I went to st lawrence market and walked around aimlessly with friends
 - Today, I went to KBBQ with some other friends and watched somw individuals fight on the street
 - Today, I went to the theatre to watch ufc 300 with friends, it was really fun
+- Today, I realized I need to commit muself to rehabbing my leg
 
 Friday April 12th, 2024
 - Today, I worked on campus with some friends
