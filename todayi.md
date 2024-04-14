@@ -2,6 +2,8 @@
 #### April 2024
 Sunday, April 14th, 2024
 - Today, I felt sad in the morning
+- Today, I went on a mong walk with my mom and dog and a neighbour
+- Today, I washed and greased my bike
 
 Saturday April 13th, 2024
 - Today, I went to st lawrence market and walked around aimlessly with friends
