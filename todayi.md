@@ -4,6 +4,9 @@ Sunday, April 14th, 2024
 - Today, I felt sad in the morning
 - Today, I went on a mong walk with my mom and dog and a neighbour
 - Today, I washed and greased my bike
+- Today, I biked to the store to get drano
+- Today, I unclogged the drain
+- Today, I made and had dinner with my family
 
 Saturday April 13th, 2024
 - Today, I went to st lawrence market and walked around aimlessly with friends
