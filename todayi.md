@@ -1,12 +1,15 @@
 ### Today, I...
 #### April 2024
-Monday, April 15th, 2024
+Tuesday April 16th, 2024
+- Today, I felt really down. despite it being a beautiful day. the cherry blossoms in full bloom at robarts. despite that i woke up early. despite that i took my dog for a walk. despite that i bumped into my uncle and cousin. what have i done? what have i done? what have i done? what have i done? what have i done? what have i done? 
+
+Monday April 15th, 2024
 - Today, I woke up late
 - Today, I took my dog and mom for a couple walks
 - Today, I hung out with my grandparents
 - Today, I was pretty sad
 
-Sunday, April 14th, 2024
+Sunday April 14th, 2024
 - Today, I felt sad in the morning
 - Today, I went on a mong walk with my mom and dog and a neighbour
 - Today, I washed and greased my bike
