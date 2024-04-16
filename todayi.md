@@ -4,6 +4,7 @@ Monday, April 15th, 2024
 - Today, I woke up late
 - Today, I took my dog and mom for a couple walks
 - Today, I hung out with my grandparents
+- Today, I was pretty sad
 
 Sunday, April 14th, 2024
 - Today, I felt sad in the morning
