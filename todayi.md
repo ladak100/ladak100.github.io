@@ -1,5 +1,10 @@
 ### Today, I...
 #### April 2024
+Monday, April 15th, 2024
+- Today, I woke up late
+- Today, I took my dog and mom for a couple walks
+- Today, I hung out with my grandparents
+
 Sunday, April 14th, 2024
 - Today, I felt sad in the morning
 - Today, I went on a mong walk with my mom and dog and a neighbour
