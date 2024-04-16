@@ -1,7 +1,7 @@
 ### Today, I...
 #### April 2024
 Tuesday April 16th, 2024
-- Today, I felt really down. despite it being a beautiful day. the cherry blossoms in full bloom at robarts. despite that i woke up early. despite that i took my dog for a walk. despite that i bumped into my uncle and cousin. what have i done? what have i done? what have i done? what have i done? what have i done? what have i done? 
+- Today, I felt really down. despite it being a beautiful day. despite the cherry blossoms in full bloom at robarts. despite that i woke up early. despite that i took my dog for a walk. despite that i bumped into my uncle and cousin. what have i done? what have i done? what have i done? what have i done? what have i done? what have i done? 
 
 Monday April 15th, 2024
 - Today, I woke up late
