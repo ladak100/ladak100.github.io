@@ -1,13 +1,13 @@
 ### Today, I...
 #### April 2024
 Tuesday April 16th, 2024:
-Today, I felt really down. despite it being a beautiful day. despite the cherry blossoms in full bloom at robarts. despite that i woke up early. despite that i took my dog for a walk. despite that i bumped into my uncle and cousin. what have i done? what have i done? what have i done? what have i done? what have i done? what have i done? 
-anger beats sadness. sadness beats happiness. happiness beats anger.
-by the afternoon, i had a hop in my step. used delusions, like helium balloons, to get out of the rut. the balloons popped after talking to a friend at night
-did i make a mistake moving countries? away from friends and family?
-then why do i feel so sad now that im back in toronto for a month?
-im closer than ever with family, hanging out with friends more than ever, breaking boundaries more than ever,and yet i feel like theyre all drifting away faster than ever
-maybe i need to get used to being alone again, doing things muself again
+- Today, I felt really down. despite it being a beautiful day. despite the cherry blossoms in full bloom at robarts. despite that i woke up early. despite that i took my dog for a walk. despite that i bumped into my uncle and cousin. what have i done? what have i done? what have i done? what have i done? what have i done? what have i done? 
+- anger beats sadness. sadness beats happiness. happiness beats anger.
+- by the afternoon, i had a hop in my step. used delusions, like helium balloons, to get out of the rut. the balloons popped after talking to a friend at night
+- did i make a mistake moving countries? away from friends and family?
+- then why do i feel so sad now that im back in toronto for a month?
+- im closer than ever with family, hanging out with friends more than ever, breaking boundaries more than ever,and yet i feel like theyre all drifting away faster than ever
+- maybe i need to get used to being alone again, doing things muself again
 
 Monday April 15th, 2024:
 - Today, I woke up late
