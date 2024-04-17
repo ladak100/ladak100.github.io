@@ -6,7 +6,7 @@ Tuesday April 16th, 2024:
 - by the afternoon, i had a hop in my step. used delusions, like helium balloons, to get out of the rut. the balloons popped after talking to a friend at night
 - did i make a mistake moving countries? away from friends and family?
 - then why do i feel so sad now that im back in toronto for a month?
-- im closer than ever with family, hanging out with friends more than ever, breaking boundaries more than ever,and yet i feel like theyre all drifting away faster than ever
+- im closer than ever with family, hanging out with friends more than ever, saying yes more than ever,and yet i feel like theyre all drifting away faster than ever
 - maybe i need to get used to being alone again, doing things muself again
 
 Monday April 15th, 2024:
