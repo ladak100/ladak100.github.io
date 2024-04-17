@@ -13,6 +13,7 @@ Tuesday April 16th, 2024:
 - then why do i feel so sad now that im back in toronto for a month?
 - im closer than ever with family, hanging out with friends more than ever, saying yes more than ever,and yet i feel like theyre all drifting away faster than ever
 - maybe i need to get used to being alone again, doing things muself again
+- too adhd to cry xaxaxaxa
 
 Monday April 15th, 2024:
 - Today, I woke up late
