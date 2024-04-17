@@ -2,6 +2,11 @@
 #### April 2024
 Tuesday April 16th, 2024:
 - Today, I felt really down. despite it being a beautiful day. despite the cherry blossoms in full bloom at robarts. despite that i woke up early. despite that i took my dog for a walk. despite that i bumped into my uncle and cousin. what have i done? what have i done? what have i done? what have i done? what have i done? what have i done? 
+- Today, I worked out
+- Today, I took my dog for a bunch of walks
+- Today, I was productive
+- Today, I watched a show with my parents
+- and yet...
 - anger beats sadness. sadness beats happiness. happiness beats anger.
 - by the afternoon, i had a hop in my step. used delusions, like helium balloons, to get out of the rut. the balloons popped after talking to a friend at night
 - did i make a mistake moving countries? away from friends and family?
