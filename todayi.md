@@ -1,5 +1,12 @@
 ### Today, I...
 #### April 2024
+Wednesday April 17th, 2024:
+- Today, I felt better
+- Today, I was reached out to by a recruiter
+- Today, I took my dog for a few walks
+- Today, I watched dune with my family
+- Today, I finished a great day by relapsing for four hours
+
 Tuesday April 16th, 2024:
 - Today, I felt really down. despite it being a beautiful day. despite the cherry blossoms in full bloom at robarts. despite that i woke up early. despite that i took my dog for a walk. despite that i bumped into my uncle and cousin. what have i done? what have i done? what have i done? what have i done? what have i done? what have i done? 
 - Today, I worked out
@@ -13,7 +20,6 @@ Tuesday April 16th, 2024:
 - then why do i feel so sad now that im back in toronto for a month?
 - im closer than ever with family, hanging out with friends more than ever, saying yes more than ever,and yet i feel like theyre all drifting away faster than ever
 - maybe i need to get used to being alone again, doing things muself again
-- too adhd to cry xaxaxaxa
 
 Monday April 15th, 2024:
 - Today, I woke up late
