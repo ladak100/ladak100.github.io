@@ -1,5 +1,12 @@
 ### Today, I...
 #### April 2024
+Thursday April 18th, 2024:
+- Today, I was reached out to by another recruiter
+- Today, I wfh from a friends place and was very productive
+- Today, I practiced the uke
+- Today, I read a little bit
+- Today, I worked out with my dad, I never did that growing up and wish i did
+
 Wednesday April 17th, 2024:
 - Today, I felt better
 - Today, I was reached out to by a recruiter
