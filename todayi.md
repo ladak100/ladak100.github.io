@@ -1,5 +1,9 @@
 ### Today, I...
 #### April 2024
+Saturday April 20th, 2024:
+- Today, I went metal detecting with an old friend. it was fun, but conversations felt a bit forced and i wasnt being exactly myself
+- Today, I felt a bit down when i returned home
+
 Friday April 19th, 2024:
 - Today, I worked downtown with some friends
 - Today, I innovated with a friend for seven hours straight
