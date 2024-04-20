@@ -1,5 +1,11 @@
 ### Today, I...
 #### April 2024
+Friday April 19th, 2024:
+- Today, I worked downtown with some friends
+- Today, I innovated with a friend for seven hours straight
+- Today, I couldnt work for an hour straight since i was distracted by this pretty hijabi with the nicest smile ive ever seen
+- Today, I had a great day
+
 Thursday April 18th, 2024:
 - Today, I was reached out to by another recruiter
 - Today, I wfh from a friends place and was very productive
