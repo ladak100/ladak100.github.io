@@ -3,6 +3,8 @@
 Saturday April 20th, 2024:
 - Today, I went metal detecting with an old friend. it was fun, but conversations felt a bit forced and i wasnt being exactly myself
 - Today, I felt a bit down when i returned home
+- Today, I went out with my dad
+- Today, I watched road house with my parents. a good trash action
 
 Friday April 19th, 2024:
 - Today, I worked downtown with some friends
