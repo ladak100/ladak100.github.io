@@ -1,5 +1,10 @@
 ### Today, I...
 #### April 2024
+Sunday April 21st, 2024:
+- Today, I worked out of indigo and the reference library
+- Today, I hit a rut around 5pm
+- Today, I went for dinner with my family, i had a great time
+
 Saturday April 20th, 2024:
 - Today, I went metal detecting with an old friend. it was fun, but conversations felt a bit forced and i wasnt being exactly myself
 - Today, I felt a bit down when i returned home
