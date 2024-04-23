@@ -1,5 +1,14 @@
 ### Today, I...
 #### April 2024
+Monday April 22nd, 2024:
+- Today, I worked out a friends place
+- Today, I met up for dinner with some friends
+- Today, I had a withdrawn day
+- Today, I felt like every conversation were forced
+- Today, I wondered if i really enjoyed the april hyperextraversion
+- Today, I thought too much
+- Today, I wondered about what i really want to do
+
 Sunday April 21st, 2024:
 - Today, I worked out of indigo and the reference library
 - Today, I hit a rut around 5pm
