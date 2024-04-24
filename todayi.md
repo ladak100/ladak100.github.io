@@ -1,7 +1,14 @@
 ### Today, I...
 #### April 2024
+Tuesday April 23rd, 2024:
+- Today, I stayed at home for the first day in a while
+- Today, I toook my dog for a few walks
+- Today, I practice the uke
+- Today, I practiced sketching
+- Today, I watched a show with my mom
+
 Monday April 22nd, 2024:
-- Today, I worked out a friends place
+- Today, I worked at a friends place
 - Today, I met up for dinner with some friends
 - Today, I had a withdrawn day
 - Today, I felt like every conversation were forced
