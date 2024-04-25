@@ -1,13 +1,19 @@
 ### Today, I...
 #### April 2024
-Tuesday April 23rd, 2024:
+Wednesday April 24th, 2024:
+- Today, I had a busy day at work
+- Today, I didn't eat much
+- Today, I hung out with a friend kv, and i had a blast just walking and talking. all gel no friction. i missed that guy
+- Today, I felt amazing
+
+Tuesday April 23th, 2024:
 - Today, I stayed at home for the first day in a while
 - Today, I toook my dog for a few walks
 - Today, I practice the uke
 - Today, I practiced sketching
 - Today, I watched a show with my mom
 
-Monday April 22nd, 2024:
+Monday April 22th, 2024:
 - Today, I worked at a friends place
 - Today, I met up for dinner with some friends
 - Today, I had a withdrawn day
@@ -16,7 +22,7 @@ Monday April 22nd, 2024:
 - Today, I thought too much
 - Today, I wondered about what i really want to do
 
-Sunday April 21st, 2024:
+Sunday April 21th, 2024:
 - Today, I worked out of indigo and the reference library
 - Today, I hit a rut around 5pm
 - Today, I went for dinner with my family, i had a great time
