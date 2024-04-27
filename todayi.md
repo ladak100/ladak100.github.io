@@ -1,9 +1,21 @@
 ### Today, I...
 #### April 2024
+Friday April 26th, 2024:
+- Today, I flew back to cali
+- Today, I practiced the uke
+- Today, I spent the day unpacking and doing chores
+- Today, I felt better than I thought I would
+
+Thursday April 25th, 2024:
+- Today, I had a busy day at work
+- Today, I took chuck out for a few walks
+- Today, I celebrated my grandmas birthday and met with my cousins
+- Today, I felt really sad about leaving
+
 Wednesday April 24th, 2024:
 - Today, I had a busy day at work
 - Today, I didn't eat much
-- Today, I hung out with a friend kv, and i had a blast just walking and talking. all gel no friction. i missed that guy
+- Today, I hung out with a friend kr, and i had a blast just walking and talking. all gel no friction. i missed that guy
 - Today, I felt amazing
 
 Tuesday April 23th, 2024:
