@@ -5,6 +5,7 @@ Saturday April 27th, 2024:
 - Today, I relapsed for 3 hours
 - Today, I hung out with a friend for the day. driving range, walk around, watch civil war
 - Today, I felt a mix of emotions
+- Today, I restarted my cycle, on a lower dose
 
 Friday April 26th, 2024:
 - Today, I flew back to cali
