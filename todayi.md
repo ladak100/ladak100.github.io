@@ -1,5 +1,11 @@
 ### Today, I...
 #### April 2024
+Saturday April 27th, 2024:
+- Today, I woke up early
+- Today, I relapsed for 3 hours
+- Today, I hung out with a friend for the day. driving range, walk around, watch civil war
+- Today, I felt a mix of emotions
+
 Friday April 26th, 2024:
 - Today, I flew back to cali
 - Today, I practiced the uke
