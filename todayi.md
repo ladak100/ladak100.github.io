@@ -5,7 +5,8 @@ Sunday April 28th, 2024:
 - Today, I hung out with a friend all day. we understand each other somewhat, but not like we used to when we hung out more frequently. it was his last weekend in the bay area before leaving permanently. i felt really down at the end of the day, because hes the last person i know well in the area. like salt to the wound, since feelings are still raw from leaving toronto two days ago. everyone is gone. time to make some more friends. but at this age, how? keep opening up - dont stop
 - Today, I went to the taco bell(e) in pacifica, the prettiest in the world
 - Today, I hiked around
-- Todayu, I bought cherries off the highway, they were below average
+- Today, I bought cherries off the highway, they were below average
+- Today, I took a waymo self driving car for the first time. i thought id be underwhelmed cause im normalized to seeing them - glad i was wrong. unbelievable
 - Today, I walked around chinatown and downtown. the city was really nice
 - Today, I retired my outbound knockoff crocs and inducted a new pair of nautica knockoff crocs from ross. i wondered why none of the knockoff crocs have holes in the sides
 - Today, I saw a dead seal for the first time ever and thought about it for a while
