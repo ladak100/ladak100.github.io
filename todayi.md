@@ -8,7 +8,7 @@ Sunday April 28th, 2024:
 - Today, I bought cherries off the highway, they were below average
 - Today, I took a waymo self driving car for the first time. i thought id be underwhelmed cause im normalized to seeing them - glad i was wrong. unbelievable
 - Today, I walked around chinatown and downtown. the city was really nice
-- Today, I retired my outbound knockoff crocs and inducted a new pair of nautica knockoff crocs from ross. i wondered why none of the knockoff crocs have holes in the sides
+- Today, I retired my 6y.o. outbound knockoff crocs and inducted a new pair of nautica knockoff crocs from ross because they had more holes in the bottom than on top
 - Today, I saw a dead seal for the first time ever and thought about it for a while
 
 Saturday April 27th, 2024:
