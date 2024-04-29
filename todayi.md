@@ -88,18 +88,12 @@ Wednesday April 17th, 2024:
 - Today, I finished a great day by relapsing for four hours
 
 Tuesday April 16th, 2024:
-- Today, I felt really down. despite it being a beautiful day. despite the cherry blossoms in full bloom at robarts. despite that i woke up early. despite that i took my dog for a walk. despite that i bumped into my uncle and cousin. what have i done? what have i done? what have i done? what have i done? what have i done? what have i done? 
+- Today, I felt really down. despite it being a beautiful day. despite the cherry blossoms in full bloom at robarts. despite that i woke up early. despite that i took my dog for a walk. despite that i bumped into my uncle and cousin. what have i done? what have i done? what have i done? what have i done? what have i done? what have i done? anger beats sadness. sadness beats happiness. happiness beats anger. by the afternoon, i had a hop in my step. used delusions, like helium balloons, to get out of the rut. the balloons popped after talking to a friend at night. did i make a mistake moving countries? away from friends and family? then why do i feel so sad now that im back in toronto for a month? im closer than ever with family, hanging out with friends more than ever, saying yes more than ever,and yet i feel like theyre all drifting away faster than ever. maybe i need to get used to being alone again, doing things muself again. why cant i cry? the emotions i feel are intensely sad, but never focused. maybe thats it
 - Today, I worked out
 - Today, I took my dog for a bunch of walks
 - Today, I was productive
 - Today, I watched a show with my parents
-- and yet...
-- anger beats sadness. sadness beats happiness. happiness beats anger.
-- by the afternoon, i had a hop in my step. used delusions, like helium balloons, to get out of the rut. the balloons popped after talking to a friend at night
-- did i make a mistake moving countries? away from friends and family?
-- then why do i feel so sad now that im back in toronto for a month?
-- im closer than ever with family, hanging out with friends more than ever, saying yes more than ever,and yet i feel like theyre all drifting away faster than ever
-- maybe i need to get used to being alone again, doing things muself again
+- Today, I bumped into my cousin at robarts. what a pleasant surprise. i forgot to give him the ttc hat i bought him
 
 Monday April 15th, 2024:
 - Today, I woke up late
