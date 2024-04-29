@@ -2,7 +2,7 @@
 #### April 2024
 Sunday April 28th, 2024:
 - Today, I woke up early cause i was cold
-- Today, I hung out with a friend all day. we understand each other somewhat, but not like we used to when we hung out more frequently. it was his last weekend in the bay area before leaving permanently. i felt really down at the end of the day, because hes the last person i know well in the area. like salt to the wound, since feelings are still raw from leaving toronto two days ago. everyone is gone. time to make some more friends.
+- Today, I hung out with a friend all day. we understand each other somewhat, but not like we used to when we hung out more frequently. it was his last weekend in the bay area before leaving permanently. i felt really down at the end of the day, because hes the last person i know well in the area. like salt to the wound, since feelings are still raw from leaving toronto two days ago. everyone is gone. time to make some more friends. but at this age, how? keep opening up - dont stop
 - Today, I went to the taco bell(e) in pacifica, the prettiest in the world
 - Today, I hiked around
 - Todayu, I bought cherries off the highway, they were below average
