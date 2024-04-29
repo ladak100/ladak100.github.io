@@ -1,9 +1,22 @@
 ### Today, I...
 #### April 2024
+Sunday April 28th, 2024:
+- Today, I woke up early cause i was cold
+- Today, I hung out with a friend all day. we understand each other somewhat, but not like we used to when we hung out more frequently. it was his last weekend in the bay area before leaving permanently. i felt really down at the end of the day, because hes the last person i know well in the area. like salt to the wound, since feelings are still raw from leaving toronto two days ago. everyone is gone. time to make some more friends.
+- Today, I went to the taco bell(e) in pacifica, the prettiest in the world
+- Today, I hiked around
+- Todayu, I bought cherries off the highway, they were below average
+- Today, I walked around chinatown and downtown. the city was really nice
+- Today, I retired my outbound knockoff crocs and inducted a new pair of nautica knockoff crocs from ross. i wondered why none of the knockoff crocs have holes in the sides
+- Today, I saw a dead seal for the first time ever and thought about it for a while
+
 Saturday April 27th, 2024:
-- Today, I woke up early
+- Today, I woke up early cause i was cold
 - Today, I relapsed for 3 hours
-- Today, I hung out with a friend for the day. driving range, walk around, watch civil war
+- Today, I hung out with a friend for the day. and he slept over. we didnt gel that well until evening, when we had more energy
+- Today, I went to a driving range in fremont, and did okay. I still dont understand how to hit a golf ball without feeling stiff
+- Today, I walked around Fremont's Central Park, i was in awe of its size
+- Today, I watched civil war, it was fun, but felt short and pointless
 - Today, I felt a mix of emotions
 - Today, I restarted my cycle, on a lower dose
 
