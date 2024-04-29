@@ -16,7 +16,7 @@ Saturday April 27th, 2024:
 - Today, I relapsed for 3 hours
 - Today, I hung out with a friend for the day. and he slept over. we didnt gel that well until evening, when we had more energy
 - Today, I went to a driving range in fremont, and did okay. I still dont understand how to hit a golf ball without feeling stiff
-- Today, I walked around Fremont's Central Park, i was in awe of its size
+- Today, I walked around Fremont's Central Park, i was in awe of its size, the number of fields, and its maintenance
 - Today, I watched civil war, it was fun, but felt short and pointless
 - Today, I felt a mix of emotions
 - Today, I restarted my cycle, on a lower dose
