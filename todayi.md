@@ -1,5 +1,12 @@
 ### Today, I...
 #### April 2024
+Monday April 29th, 2024:
+- Today, I woke up early
+- Today, I talked to some coworkers
+- Today, I worked out and focused hard on my rehab. felt really good after
+- Today, I called a friend to review his portfolio
+- Today, I got a haircut
+
 Sunday April 28th, 2024:
 - Today, I woke up early cause i was cold
 - Today, I hung out with a friend all day. we understand each other somewhat, but not like we used to when we hung out more frequently. it was his last weekend in the bay area before leaving permanently. i felt really down at the end of the day, because hes the last person i know well in the area. like salt to the wound, since feelings are still raw from leaving toronto two days ago. everyone is gone. time to make some more friends. but at this age, how? keep opening up - dont stop
