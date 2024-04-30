@@ -5,7 +5,9 @@ Monday April 29th, 2024:
 - Today, I talked to some coworkers
 - Today, I worked out and focused hard on my rehab. felt really good after
 - Today, I called a friend to review his portfolio
-- Today, I got a haircut
+- Today, I biked to got a haircut
+- Today, I pumped my bike tires
+- Today, I felt down again in the evening. again.
 
 Sunday April 28th, 2024:
 - Today, I woke up early cause i was cold
