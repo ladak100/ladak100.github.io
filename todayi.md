@@ -1,5 +1,12 @@
 ### Today, I...
 #### April 2024
+Tuesday April 30th, 2024:
+- Today, I woke up early
+- Today, I had a fantastic start to the day. my momentum was killed due to a long meeting midday. and i mever recovered
+- Today, I practiced the uke for a while
+- Today, I stabbed my scalp on purpose
+- Today, I called some friends and watched the columbia university fiasco go down. i had a great time listening to the student radio and just imagining everything. radio is king.
+
 Monday April 29th, 2024:
 - Today, I woke up early
 - Today, I talked to some coworkers
