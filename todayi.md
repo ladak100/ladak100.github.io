@@ -1,5 +1,8 @@
 ### Today, I...
 #### May 2024
+Thursday May 2th, 2024:
+- Today, I relapsed for 8 hours
+
 Wednesday May 1th, 2024:
 - Today, I had fun chatting with some coworkers
 - Today, I got a lot done
@@ -7,6 +10,7 @@ Wednesday May 1th, 2024:
 - Today, I practiced the uke
 - Today, I had a massive burst of energy at 10pm
 - Today, I felt really great
+- Today, I relapsed for 2 hours
 
 #### April 2024
 Tuesday April 30th, 2024:
