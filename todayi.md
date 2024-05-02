@@ -1,4 +1,13 @@
 ### Today, I...
+#### May 2024
+Wednesday May 1th, 2024:
+- Today, I had fun chatting with some coworkers
+- Today, I got a lot done
+- Today, I had pest control come
+- Today, I practiced the uke
+- Today, I had a massive burst of energy at 10pm
+- Today, I felt really great
+
 #### April 2024
 Tuesday April 30th, 2024:
 - Today, I woke up early
