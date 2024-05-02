@@ -1,7 +1,7 @@
 ### Today, I...
 #### May 2024
 Thursday May 2th, 2024:
-- Today, I relapsed for 8 hours
+- Today, I relapsed for 8 hours. feeling like trash
 
 Wednesday May 1th, 2024:
 - Today, I had fun chatting with some coworkers
