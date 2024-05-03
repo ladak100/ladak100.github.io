@@ -2,7 +2,7 @@
 #### May 2024
 Thursday May 2th, 2024:
 - Today, I relapsed for 8 hours. WAFUD
-- Today, I stared and scrolled endlessly eyes glued and burning
+- Today, I stared and scrolled endlessly eyes glued and burning. so aids aids aids aids day. like one of those fats from walle, like a literal hunchback monkey
 
 Wednesday May 1th, 2024:
 - Today, I had fun chatting with some coworkers
