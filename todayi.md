@@ -1,5 +1,9 @@
 ### Today, I...
 #### May 2024
+Friday May 3th, 2024:
+- Today, I woke up very early to finish something i was late on
+- Today, I recovered from yesterday far better than i thought.
+
 Thursday May 2th, 2024:
 - Today, I relapsed for 8 hours. WAFUD
 - Today, I stared and scrolled endlessly eyes glued and burning. so aids aids aids aids day. like one of those fats from walle, like a literal hunchback monkey
