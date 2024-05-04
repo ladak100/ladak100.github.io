@@ -3,6 +3,9 @@
 Friday May 3th, 2024:
 - Today, I woke up very early to finish something i was late on
 - Today, I recovered from yesterday far better than i thought.
+- Today, I did decent work
+- Today, I wrnt to my final pt session at kaiser and showed up late
+- Today, I accidentally napped for 4 hrs in the evening and felt like trash when i woke
 
 Thursday May 2th, 2024:
 - Today, I relapsed for 8 hours. WAFUD
