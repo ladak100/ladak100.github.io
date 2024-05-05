@@ -1,7 +1,7 @@
 ### Today, I...
 #### May 2024
 Sunday May 5th, 2024:
-- Today, I relapsed for 5 hours
+- Today, I relapsed for 5 hours. time for a great reset
 
 Saturday May 4th, 2024:
 - Today, I went to buy groceries
