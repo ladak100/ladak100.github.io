@@ -4,7 +4,7 @@ I am illiterate. From 2010-2022, I did not read a single book. Here are the book
 #### 2024
 - [Salt, Fat, Acid, Heat](https://www.google.com/books/edition/_/yvqxDgAAQBAJ?hl=en)
   - __hardcover__
-  - __review:__ the second halfis a list of recipes, applying the lessons from the first. i did not read the second half. the half helped me build a mental model of how cooking works, providing the building blocks necessary to actually get good at cooking -- that is -- be able to improvise. too often i just follow recipes with little understnading of why the recipe was designed the way it was and even less confidence to make substitutions or adjustments on the fly. she does babble a lot, could probbaly be shorter. also not sure how accurate the science was
+  - __review:__ the second halfis a list of recipes, applying the lessons from the first. i did not read the second half. the half helped me build a mental model of how cooking works, providing the building blocks necessary to actually get good at cooking -- that is -- be able to improvise. too often i just follow recipes with little understnading of why the recipe was designed the way it was and even less confidence to make substitutions or adjustments on the fly. she does babble a lot, could probbaly be shorter
   - __nice quote:__ taste and adjust. learn to improvise.
 - [The Airman's Odyssey](https://www.google.com/books/edition/Airman_s_Odyssey/nIOZdLHReUMC?hl=en) __[WITHDREW]__
   - __hardcover__
