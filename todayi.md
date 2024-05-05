@@ -1,5 +1,13 @@
 ### Today, I...
 #### May 2024
+Sunday May 5th, 2024:
+- Today, I relapsed for 5 hours
+
+Saturday May 4th, 2024:
+- Today, I went to buy groceries
+- Today, I did some catch up at work
+- Today, I relapsed
+
 Friday May 3th, 2024:
 - Today, I woke up very early to finish something i was late on
 - Today, I recovered from yesterday far better than i thought.
