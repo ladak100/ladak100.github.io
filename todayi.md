@@ -3,7 +3,7 @@
 Sunday May 5th, 2024:
 - Today, I relapsed for 5 hours. time for a great reset
 - Today, I caught up on all my chores
-- Today, I rode my bike to drop off a book at the library. on the way i was hit by a grey honda accord making a left turn from middlefield onto oak grove while i was riding southbound on middlefield. thankfully the collision was about 5MPH since we both slowed down. as of 1hr after, no injuries or bike damage. this was the day after i bought a bike helmet. count your blessings. i didnt wear the helmet. this was a warning for the consecutive relapses
+- Today, I rode my bike to drop off a book at the library. on the way i was hit by a grey honda accord making a left turn from middlefield onto oak grove while i was riding southbound on middlefield. i had right of way. thankfully the collision was about 5MPH since we both slowed down. as of 1hr after, no injuries or bike damage. this was the day after i bought a bike helmet. count your blessings. i didnt wear the helmet. this was a warning for the consecutive relapses. the couple that hit me reminded me of my grandparents.
 
 Saturday May 4th, 2024:
 - Today, I went to buy groceries
