@@ -13,6 +13,7 @@ Tuesday May 7th, 2024:
 Monday May 6th, 2024:
 - Today, I was quite productive
 - Today, I went to the gym
+- Today, I called a friend for a few hours
 
 Sunday May 5th, 2024:
 - Today, I relapsed for 5 hours. time for a great reset
