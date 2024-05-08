@@ -1,5 +1,15 @@
 ### Today, I...
 #### May 2024
+Tuesday May 7th, 2024:
+- Today, I was productive
+- Today, I got contacted by a recruiter
+- Today, I didn't eat enough
+- Today, I felt time pass very quickly
+
+Monday May 6th, 2024:
+- Today, I was quite productive
+- Today, I went to the gym
+
 Sunday May 5th, 2024:
 - Today, I relapsed for 5 hours. time for a great reset
 - Today, I caught up on all my chores
