@@ -4,6 +4,7 @@ Tuesday May 7th, 2024:
 - Today, I was productive
 - Today, I got contacted by a recruiter
 - Today, I didn't eat enough
+- Today, I relapsed for two hours
 - Today, I felt time pass very quickly
 
 Monday May 6th, 2024:
