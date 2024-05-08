@@ -1,5 +1,8 @@
 ### Today, I...
 #### May 2024
+Wednesday May 8th, 2024:
+- Today, I relapsed for 45 minutes. great imrpvoment
+
 Tuesday May 7th, 2024:
 - Today, I was productive
 - Today, I got contacted by a recruiter
