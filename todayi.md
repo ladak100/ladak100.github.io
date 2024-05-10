@@ -1,7 +1,14 @@
 ### Today, I...
 #### May 2024
+Thursday May 9th, 2024:
+- Today, I played ping pong with some coworkers
+- Today, I was productive
+- Today, I felt great all day
+
 Wednesday May 8th, 2024:
 - Today, I relapsed for 45 minutes. great imrpvoment
+- Today, I went to the gym
+- Today, I was productive. ive been feeling great recently
 
 Tuesday May 7th, 2024:
 - Today, I was productive
