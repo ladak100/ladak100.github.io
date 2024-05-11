@@ -1,9 +1,22 @@
 ### Today, I...
 #### May 2024
+Saturday May 11th, 2024:
+- Today, I drove up to berkeley and walked around the claremont hills. most beautiful neighbourhood in the bay ive been to
+- Today, I bought some gloves off a girl on fb marketplace
+- Today, I did laundry
+- Today, I added some attachments to my bike
+
+Friday May 10th, 2024:
+- Today, I woke up not well rested
+- Today, I felt alright
+- Today, I felt very strange since my boss let me know hes moving jobs
+- Today, I met up with an old roommate in the evening. it was slightly enjoyable, but i wasnt sure what to think of it
+
 Thursday May 9th, 2024:
 - Today, I played ping pong with some coworkers
 - Today, I was productive
 - Today, I felt great all day
+- Today, I felt worse in the evening since its crunch time
 
 Wednesday May 8th, 2024:
 - Today, I relapsed for 45 minutes. great imrpvoment
