@@ -7,7 +7,7 @@ Saturday May 11th, 2024:
 - Today, I added some attachments to my bike
 - Today, I biked to the library and the grocery store. i wore my helmet for the first time in a while. need to get used to it
 - Today, I loafted in the evening
-- Today, I came across a podcast episode called "addressing all 25 year old thinkers". too much resonance to handle
+- Today, I came across a podcast episode called "addressing all 25 year old thinkers". too much resonance to handle. be present, with purpose.
 
 Friday May 10th, 2024:
 - Today, I woke up not well rested
