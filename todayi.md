@@ -5,6 +5,7 @@ Saturday May 11th, 2024:
 - Today, I bought some gloves off a girl on fb marketplace
 - Today, I did laundry
 - Today, I added some attachments to my bike
+- Today, I biked to the library and the grocery store. i wore my helmet for the first time in a while. need to get used to it
 
 Friday May 10th, 2024:
 - Today, I woke up not well rested
