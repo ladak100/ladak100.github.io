@@ -2,7 +2,7 @@
 #### May 2024
 Sunday May 12th, 2024:
 - Today, I didnt do very much
-- Today, I felt the anxiety of all my work due creep up
+- Today, I felt the anxiety of all my work due creep up. led to a lot fo procrastination today
 - Today, I felt a nap and felt dread when i woke
 - Today, I called my family to wish my mom a happy birthday and give her a gift. i always feel a bit down after calling them, wishing i was closer.
 
