@@ -1,5 +1,8 @@
 ### Today, I...
 #### May 2024
+Monday May 13th, 2024:
+- Today, I relapsed for 3 hours
+
 Sunday May 12th, 2024:
 - Today, I didnt do very much
 - Today, I felt the anxiety of all my work due creep up. led to a lot fo procrastination today. didnt start working until evening
