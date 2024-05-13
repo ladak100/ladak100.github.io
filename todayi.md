@@ -1,10 +1,17 @@
 ### Today, I...
 #### May 2024
+Sunday May 12th, 2024:
+- Today, I didnt do very much
+- Today, I felt the anxiety of all my work due creep up
+- Today, I felt a nap and felt dread when i woke
+- Today, I called my family to wish my mom a happy birthday and give her a gift. i always feel a bit down after calling them, wishing i was closer.
+
 Saturday May 11th, 2024:
 - Today, I drove up to berkeley and walked around the claremont hills. most beautiful neighbourhood in the bay ive been to
 - Today, I bought some gloves off a girl on fb marketplace
 - Today, I did laundry
 - Today, I added some attachments to my bike
+- Today, I took a fat nap and felt awesome when i woke
 - Today, I biked to the library and the grocery store. i wore my helmet for the first time in a while. need to get used to it
 - Today, I loafted in the evening
 - Today, I came across a podcast episode called "addressing all 25 year old thinkers". too much resonance to handle. be present, with purpose.
