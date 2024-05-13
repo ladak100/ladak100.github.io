@@ -2,6 +2,8 @@
 #### May 2024
 Monday May 13th, 2024:
 - Today, I relapsed for 3 hours
+- Today, I awoke from a horribke slumber
+- Today, I feel fried
 
 Sunday May 12th, 2024:
 - Today, I didnt do very much
