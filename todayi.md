@@ -1,5 +1,9 @@
 ### Today, I...
 #### May 2024
+Tuesday May 14th, 2024:
+- Today, I felt off again. horrible sleep and a lot due. i need a great reset
+- Today, I had an jnterview with a company. the opportunity is good, and so was my performance except the last 5 mins hehe. get some better sleep
+
 Monday May 13th, 2024:
 - Today, I relapsed for 3 hours
 - Today, I awoke from a horribke slumber
