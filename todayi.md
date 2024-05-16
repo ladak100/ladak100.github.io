@@ -1,5 +1,11 @@
 ### Today, I...
 #### May 2024
+Thursday May 16th, 2024:
+- Today, I felt sick. all the shit sleep and schedule this week is catching up to me. im getting old
+
+Wednesday May 15th, 2024:
+- Today, I did good work but had no structure. ive forgotten most of what happened
+
 Tuesday May 14th, 2024:
 - Today, I felt off again. horrible sleep and a lot due. i need a great reset
 - Today, I had an jnterview with a company. the opportunity is good, and so was my performance except the last 5 mins hehe. get some better sleep
