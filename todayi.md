@@ -1,7 +1,12 @@
 ### Today, I...
 #### May 2024
+Friday May 17th, 2024:
+- Today, I had a bunch of meetings
+- Today, I got dinner with my coworkers
+
 Thursday May 16th, 2024:
 - Today, I felt sick. all the shit sleep and schedule this week is catching up to me. im getting old
+- Today, I practiced an instrument
 
 Wednesday May 15th, 2024:
 - Today, I did good work but had no structure. ive forgotten most of what happened
