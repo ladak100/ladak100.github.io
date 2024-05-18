@@ -3,6 +3,7 @@
 Friday May 17th, 2024:
 - Today, I had a bunch of meetings
 - Today, I got dinner with my coworkers
+- Today, I purged all the remaining lucky charms in my house by eating it. cold turkey doesnt work so i tried ODing on it til i build a disgust for it. a lá blacking out on a brand of alcohol
 
 Thursday May 16th, 2024:
 - Today, I felt sick. all the shit sleep and schedule this week is catching up to me. im getting old
