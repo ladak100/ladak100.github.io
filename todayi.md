@@ -1,5 +1,11 @@
 ### Today, I...
 #### May 2024
+Saturday May 18th, 2024:
+- Today, I went on a bike ride and massive walk with my old roommate to the red estuary
+- Today, I shaved
+- Today, I did laundry
+- Today, I had my third consecutive day of green shit because of the lucky charms
+
 Friday May 17th, 2024:
 - Today, I had a bunch of meetings
 - Today, I got dinner with my coworkers
