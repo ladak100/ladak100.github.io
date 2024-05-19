@@ -1,5 +1,8 @@
 ### Today, I...
 #### May 2024
+Sunday May 19th, 2024:
+- Today, I drove towards Upper Lake but bailed at Petaluma and got Denny's. My server was a real nice guy and speaking with him made thw hole drive worth it
+
 Saturday May 18th, 2024:
 - Today, I went on a bike ride and massive walk with my old roommate to the red estuary
 - Today, I shaved
