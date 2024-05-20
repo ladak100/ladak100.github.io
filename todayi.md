@@ -2,6 +2,8 @@
 #### May 2024
 Sunday May 19th, 2024:
 - Today, I drove towards Upper Lake but bailed at Petaluma and got Denny's. My server was a real nice guy and speaking with him made thw hole drive worth it
+- Today, I wasted the rest of the day. spent way too much time thinking about what i wanted to do today, i played a bit of uke but overall a waste
+- Today, I remembered I have to travel tomorrow for work and it worsened my mood
 
 Saturday May 18th, 2024:
 - Today, I went on a bike ride and massive walk with my old roommate to the red estuary
