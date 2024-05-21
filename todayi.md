@@ -2,7 +2,7 @@
 #### May 2024
 Tuesday May 21th, 2024:
 - Today, I woke up at 4am from a wild dream. i observe a crash in front of me of an Atlantis: The Lost Empire-like craft into an underwater hangar. a low gravity fight ensues in the study between me and the pilot (i started it), and ends with me dropping a bookshelf, giggly and redfaced out of hypocrisy. i walk around with some survivors after and a black smartcar whizzes by us. later, we hear a story of vehicular manslaughter on campus.
-- Today, I woke up feeling like the dream was real, then feeling sadness as i got my bearings. the dream was full of my highschool classmates, and featured a certain individual. my mind is too stuck in the past, and thats mostly my fault. I dream like its 2018, man.When’s the last time I forged a relationship stronger than “work friends”? whens the last time i made friends with someone i spent the requisite time with to be in my dream.
+- Today, I woke up feeling like the dream was real, then feeling sadness as i got my bearings. the dream was full of my highschool classmates, and featured a certain individual. my mind is too stuck in the past, and thats mostly my fault. I dream like its 2018, man.When’s the last time I forged a relationship stronger than “work friends”? whens the last time ive spent with someone new the time required to end up in a dream? i dont dream about anyone ive met in the past three years. why?
 
 Monday May 20th, 2024:
 - Today, I woke up at 430 to catch my 7am flight. I fell asleep just three hrs earlier
