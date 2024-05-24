@@ -7,7 +7,8 @@ Friday May 24th, 2024:
 Thursday May 23th, 2024:
 - Today, I got nized from the place that interviewed me
 - Today, I flew back to the bay
-- Today, I felt that dread when i got back
+- Today, I felt that dread when i got back. realized have i that it returns every time i finish traveling. like a chapter closing maybe
+- Today, I started reading the making of the atomic bomb by richard rhodes
 
 Wednesday May 22th, 2024:
 - Today, I presented on topics i have no idea about to a technical crowd. i was not impressed by my performance
