@@ -3,6 +3,7 @@
 Friday May 24th, 2024:
 - Today, I caught up on sleep
 - Today, I dreamt about pronouncing this optometry professor (that looks like Olivia Yacé)'s name and asked a bunch of people if they could read make out the text printed on shirts of a few people in a photo
+- Today, I still felt the sensitivity on my left second molar while brushing teeth because of megadosing sweetarts on tuesday
 
 Thursday May 23th, 2024:
 - Today, I got nized from the place that interviewed me
