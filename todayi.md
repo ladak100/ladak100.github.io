@@ -1,5 +1,14 @@
 ### Today, I...
 #### May 2024
+Friday May 24th, 2024:
+- Today, I caught up on sleep
+- Today, I dreamt about pronouncing this optometry professor (that looks like Olivia Yacé)'s name and asked a bunch of people if they could read make out the text printed on shirts of a few people in a photo
+
+Thursday May 23th, 2024:
+- Today, I got nized from the place that interviewed me
+- Today, I flew back to the bay
+- Today, I felt that dread when i got back
+
 Wednesday May 22th, 2024:
 - Today, I presented on topics i have no idea about to a technical crowd. i was not impressed by my performance
 - Today, I felt sick to my stomach the whole morning and afternoon
