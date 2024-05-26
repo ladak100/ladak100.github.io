@@ -1,5 +1,9 @@
 ### Today, I...
 #### May 2024
+Sunday May 26th, 2024:
+- Today, I dreamt about the neglected doberman next door
+- Today, I dreamt about something else that made me feel the dread in the morning
+
 Saturday May 25th, 2024:
 - Today, I bought a blender in the twin peaks neighbourhood
 - Today, I walked to christmas tree point
