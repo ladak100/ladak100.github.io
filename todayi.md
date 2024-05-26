@@ -1,9 +1,18 @@
 ### Today, I...
 #### May 2024
+Saturday May 25th, 2024:
+- Today, I bought a blender in the twin peaks neighbourhood
+- Today, I walked to christmas tree point
+- Today, I did a bunch of chores
+- Today, I practiced some things
+- Today, I called my mom and dad
+- Today, I called my grandmother
+
 Friday May 24th, 2024:
 - Today, I caught up on sleep
 - Today, I dreamt about pronouncing this optometry professor (that looks like Olivia Yacé)'s name and asked a bunch of people if they could read make out the text printed on shirts of a few people in a photo
 - Today, I still felt the sensitivity on my left second molar while brushing teeth because of megadosing sweetarts on tuesday
+- Today, I called a friend
 
 Thursday May 23th, 2024:
 - Today, I got nized from the place that interviewed me
