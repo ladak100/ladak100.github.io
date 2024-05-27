@@ -3,6 +3,10 @@
 Sunday May 26th, 2024:
 - Today, I dreamt about the neglected doberman next door
 - Today, I dreamt about something else that made me feel the dread in the morning
+- Today, I made an amazing breakfast
+- Today, I practiced a few skills
+- Today, I attempted a muscle up at the park but failed
+- Today, I started procrastinating hard in the evening, and got out the whole after a couple hours
 
 Saturday May 25th, 2024:
 - Today, I bought a blender in the twin peaks neighbourhood
