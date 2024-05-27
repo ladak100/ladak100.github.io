@@ -1,5 +1,8 @@
 ### Today, I...
 #### May 2024
+Monday May 27th, 2024:
+- Today, I dreamt about arman tsarukyan invading the octagon during 302 and somehow winning
+
 Sunday May 26th, 2024:
 - Today, I dreamt about the neglected doberman next door
 - Today, I dreamt about something else that made me feel the dread in the morning
