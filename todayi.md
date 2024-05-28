@@ -2,6 +2,11 @@
 #### May 2024
 Monday May 27th, 2024:
 - Today, I dreamt about arman tsarukyan invading the octagon during 302 and somehow winning
+- Today, I had an amazing day
+- Today, I was somewhat productive
+- Today, I watched twitch all day but it was fun
+- Today, I booked my flights for my trip to sa
+- Today, I helped a friend finish his resume
 
 Sunday May 26th, 2024:
 - Today, I dreamt about the neglected doberman next door
