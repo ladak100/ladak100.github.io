@@ -1,5 +1,8 @@
 ### Today, I...
 #### May 2024
+Tuesday May 28th, 2024:
+- Today, I slept very little, but woke up with energy. I felt the presence that i did yesterday carry over, which felt amazing. use the ticking as a hint to calm yourself
+
 Monday May 27th, 2024:
 - Today, I dreamt about arman tsarukyan invading the octagon during 302 and somehow winning
 - Today, I had an amazing day
