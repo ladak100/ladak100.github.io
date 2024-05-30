@@ -1,5 +1,16 @@
 ### Today, I...
 #### May 2024
+Thursday May 30th, 2024:
+- Today, I barely slept at all
+- Today, I took a massive nap in the afternoon, and felt anxious when i woke up
+- Today, I spoke with a friend
+- Today, I spoke with my mom
+- Today, I went for a walk with my coworker and boss, who leave tomorrow
+
+Wednesday May 29th, 2024:
+- Today, I was a machine
+- Today, I went to the gym (legs)
+
 Tuesday May 28th, 2024:
 - Today, I slept very little, but woke up with energy. I felt the presence that i did yesterday carry over, which felt amazing. use the ticking as a hint to calm yourself
 - Today, I lost my focus after 10am because of the meetings an didnt get it back
