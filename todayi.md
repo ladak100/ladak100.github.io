@@ -1,5 +1,17 @@
 ### Today, I...
 #### May 2024
+Sunday June 2th, 2024:
+
+Saturday June 1th, 2024:
+- Today, I caught up on sleep
+- Today, I finished some work thing that was bothering me but stayed up too late doing it
+- Today, I did some calisthenics stuff at home
+- Today, I finally got the rhumba strum
+
+Friday May 31th, 2024:
+- Today, I got very little sleep
+- Today, I helped organize a final sendoff for my boss. It was his last day today and i was pretty sad
+
 Thursday May 30th, 2024:
 - Today, I barely slept at all
 - Today, I took a massive nap in the afternoon, and felt anxious when i woke up
