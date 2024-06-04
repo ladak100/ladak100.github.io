@@ -1,6 +1,13 @@
 ### Today, I...
-#### May 2024
+#### June 2024
+Monday June 3tg, 2024:
+- Today, I was kind of unproductive
+- Today, I called my family
+
 Sunday June 2th, 2024:
+- Today, I woke up late
+- Today, I worked out at the park
+- Today, I bought a ton of groceries
 
 Saturday June 1th, 2024:
 - Today, I caught up on sleep
@@ -8,6 +15,7 @@ Saturday June 1th, 2024:
 - Today, I did some calisthenics stuff at home
 - Today, I finally got the rhumba strum
 
+#### May 2024
 Friday May 31th, 2024:
 - Today, I got very little sleep
 - Today, I helped organize a final sendoff for my boss. It was his last day today and i was pretty sad
