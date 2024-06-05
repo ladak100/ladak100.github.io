@@ -1,6 +1,11 @@
 ### Today, I...
 #### June 2024
-Monday June 3tg, 2024:
+Tuesday June 4th, 2024:
+- Today, I called a friend
+- Today, I worked out rehab + legs
+- Today, I relapsed hard until 3am
+
+Monday June 3th, 2024:
 - Today, I was kind of unproductive
 - Today, I called my family
 
