@@ -1,5 +1,10 @@
 ### Today, I...
 #### June 2024
+Wednesday June 5th, 2024:
+- Today, I had bad sleep
+- Today, I had poor productivity. need to go back to filling my free time productively
+- Today, I spoke with this researcher at berkeley erg. i failed to guide the discussion away from surface level. i will get better
+
 Tuesday June 4th, 2024:
 - Today, I called a friend
 - Today, I worked out rehab + legs
