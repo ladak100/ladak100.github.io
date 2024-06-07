@@ -9,6 +9,7 @@ Thursday June 6th, 2024:
 - Today, I had a semiproductive rest of day. i need a break from going into office, i swear my productivity is just avg from there
 - Today, I played ping pong for an hour
 - Today, I chatted with friends for three hours
+- Today, I relapsed again
 
 Wednesday June 5th, 2024:
 - Today, I had bad sleep
