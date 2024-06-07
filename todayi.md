@@ -1,5 +1,8 @@
 ### Today, I...
 #### June 2024
+Friday June 7th, 2024:
+- Today, I am going to stop the spiral
+
 Thursday June 6th, 2024:
 - Today, I had velow a erage sleep
 - Today, I caught up on sleep by napping before lunch. during that nap I dreamt of some sort of father figure, it was either my grandfather or someone from work. he was a grump but every word was meaningful. he was obsessed with the color orange and this particular food. this was a sequel to a previous dream, and hed helped me out in the past one. in this one, i made a massive spread of that food he liked. he was so moved by the gesture he cracked a smile. witth the most emotion he could conjure, and told me what i needed to do (i cant remember the details and am not doing it justice). the next sequence of the dream i was staring out the window and saw his daughter take some sort of weapon out the car and walk towards the house we were in with conviction. I was awoken by a Webex call and couldnt finish the dream. i felt all the emotion of the dream but i cant remember the most important details. i tried to chase it after the call but couldnt even get to sleep. i love dreams like that - i get to feel without the damper of cynicism
