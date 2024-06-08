@@ -2,6 +2,9 @@
 #### June 2024
 Friday June 7th, 2024:
 - Today, I am going to stop the spiral
+- Today, I didnt eat enough
+- Today, I was quite productive
+- Today, I slept at 7pm with the intention of a great reset
 
 Thursday June 6th, 2024:
 - Today, I had velow a erage sleep
