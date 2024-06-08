@@ -1,5 +1,11 @@
 ### Today, I...
 #### June 2024
+Saturday June 8th, 2024:
+- Today, I woke up early. awesome
+- Today, I biked to the park and worked out
+- Today, I finally continued the book
+- Today, I made an amazing breakfast
+
 Friday June 7th, 2024:
 - Today, I am going to stop the spiral
 - Today, I didnt eat enough
