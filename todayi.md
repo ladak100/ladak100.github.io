@@ -6,6 +6,8 @@ Saturday June 8th, 2024:
 - Today, I finally continued the book
 - Today, I made an amazing breakfast
 - Today, I was productive in the morning and slowed down in the afternoon
+- Today, I cleaned the garden
+- Today, I reset my alwxa and fixed the lcoation settings
 
 Friday June 7th, 2024:
 - Today, I am going to stop the spiral
