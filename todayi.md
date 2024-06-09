@@ -1,5 +1,7 @@
 ### Today, I...
 #### June 2024
+- Today, I woke at noon. I dreamt about McGregors return to the UFC while working at a CRT TV store/Sleep Country
+
 Saturday June 8th, 2024:
 - Today, I woke up early. awesome
 - Today, I biked to the park and worked out
@@ -7,6 +9,7 @@ Saturday June 8th, 2024:
 - Today, I made an amazing breakfast
 - Today, I was productive in the morning and slowed down in the afternoon
 - Today, I cleaned the garden
+- Today, I cleaned the house
 - Today, I reset my alwxa and fixed the lcoation settings
 
 Friday June 7th, 2024:
