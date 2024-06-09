@@ -1,6 +1,8 @@
 ### Today, I...
 #### June 2024
-- Today, I woke at noon. I dreamt about McGregors return to the UFC while working at a CRT TV store/Sleep Country
+- Today, I woke at noon. I dreamt about McGregors return to the UFC while working at a CRT TV store/Sleep Country. it was vivid but i dont remember most of the details
+- Today, I called a friend
+- Today, I felt great after waking up, even though it was late. New experiment: if it gives a bit of anxiety, do it immediately
 
 Saturday June 8th, 2024:
 - Today, I woke up early. awesome
