@@ -7,6 +7,7 @@ Sunday June 9th, 2024:
 - Today, I did a lot of chores
 - Today, I practiced a few things
 - Today, I had a big slump in the evening, from 8-930pm. thought too much
+- Today, I worked out a bit
 
 Saturday June 8th, 2024:
 - Today, I woke up early. awesome
