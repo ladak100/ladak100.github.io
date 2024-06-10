@@ -1,5 +1,8 @@
 ### Today, I...
 #### June 2024
+Monday June 10th, 2024:
+- Today, I relapsed
+
 Sunday June 9th, 2024:
 - Today, I woke at noon. I dreamt about McGregors return to the UFC while working at a CRT TV store/Sleep Country. it was vivid but i dont remember most of the details
 - Today, I called a friend
