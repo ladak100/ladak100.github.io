@@ -1,11 +1,19 @@
 ### Today, I...
 #### June 2024
+Tuesday June 11th, 2024:
+- Today, I tried to be as calm as possible
+- Today, I was semi-productive
+- Today, I went to the gym. i felt great, maybe because today's lunch was low carb?
+- Today, I course corrected. Yesterday feels like forever ago
+
 Monday June 10th, 2024:
-- Today, I relapsed. It was bad. Really bad
+- Today, I relapsed. It was bad. Really bad. and i barely ate to boot
 - Today, I called my family
 - Today, I hesitated
 - Today, I called a friend
 - Today, I sorted some things with my landlord
+- Today, I did a good job presenting
+- Today, I binged payton talbots videos on youtube. watching the videos made me insecure
 
 Sunday June 9th, 2024:
 - Today, I woke at noon. I dreamt about McGregors return to the UFC while working at a CRT TV store/Sleep Country. it was vivid but i dont remember most of the details
