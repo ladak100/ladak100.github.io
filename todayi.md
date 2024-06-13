@@ -1,5 +1,12 @@
 ### Today, I...
 #### June 2024
+Thursday June 13th, 2024:
+
+Wednesday June 12th, 2024:
+- Today, I practiced a lot
+- Today, I felt alright. Got very down towards the evening
+- Today, I felt sides
+
 Tuesday June 11th, 2024:
 - Today, I tried to be as calm as possible
 - Today, I was semi-productive
