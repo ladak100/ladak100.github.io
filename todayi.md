@@ -4,7 +4,7 @@ Thursday June 13th, 2024:
 
 Wednesday June 12th, 2024:
 - Today, I practiced a lot
-- Today, I felt alright. Got very down towards the evening
+- Today, I felt alright. Got very down towards the  late afternoon. Regained composure in evening
 - Today, I felt sides
 
 Tuesday June 11th, 2024:
