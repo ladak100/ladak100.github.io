@@ -1,6 +1,9 @@
 ### Today, I...
 #### June 2024
+Friday June 14th, 2024:
+
 Thursday June 13th, 2024:
+- Today, I was a bit productive
 
 Wednesday June 12th, 2024:
 - Today, I practiced a lot
