@@ -1,8 +1,11 @@
 ### Today, I...
 #### June 2024
+
+
 Sunday June 16th, 2024:
 - Today, I woke up late
 - Today, I went on a bikeride with a friend around the crystal springs reservoir and dipped my toes in the water
+- Today, I felt down in the evening
 
 Saturday June 15th, 2024:
 - Today, I took a basic handgun course
