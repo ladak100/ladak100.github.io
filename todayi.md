@@ -1,6 +1,9 @@
 ### Today, I...
 #### June 2024
-
+Monday June 17th, 2024:
+- Today, I had a vivid dream about hiding from war
+- Tosay, I had another vivid dream during my nap
+- Today, I tried to get this thing bothering me done
 
 Sunday June 16th, 2024:
 - Today, I woke up late
