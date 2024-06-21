@@ -1,5 +1,17 @@
 ### Today, I...
 #### June 2024
+Thursday June 20th, 2024:
+- Today, I caught up on sleep
+- Today, I was productive in the evening
+- Today, I felt the sides
+
+Wednesday June 19th, 2024:
+- Today, I prepped for leaving to Toronto.
+- Today, I flew to Toronto in the evening and slept horribly. Sides?
+
+Tuesday June 18th, 2024:
+- Today, I forgot what happened. Not good
+
 Monday June 17th, 2024:
 - Today, I had a vivid dream about hiding from war
 - Tosay, I had another vivid dream during my nap
