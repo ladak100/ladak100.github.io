@@ -1,5 +1,9 @@
 ### Today, I...
 #### June 2024
+Saturday June 23th, 2024:
+- Today, I destroyed my sleep schedule due to illness
+- Today, I slept all day to recover
+
 Saturday June 22th, 2024:
 - Today, I completely fixed my sleep schedule
 - Today, I woke up with that thing that happens when something is stuck between my nose and throat. burned all day and had pnd
