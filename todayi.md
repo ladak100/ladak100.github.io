@@ -1,7 +1,16 @@
 ### Today, I...
 #### June 2024
+Saturday June 22th, 2024:
+- Today, I completely fixed my sleep schedule
+- Today, I woke up with that thing that happens when something is stuck between my nose and throat. burned all day and had pnd
+- Today, I hung out with my sister
+
+Friday June 21th, 2024:
+- Today, I took my dog for a ton of walks
+- Today, I was super productive in the evening
+
 Thursday June 20th, 2024:
-- Today, I caught up on sleep
+- Today, I caught up on sleep. my aleep schedule is still destroyed
 - Today, I was productive in the evening
 - Today, I felt the sides
 
