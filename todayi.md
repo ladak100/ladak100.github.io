@@ -1,5 +1,10 @@
 ### Today, I...
 #### June 2024
+Sunday June 24th, 2024:
+- Today, I woke up at 4pm
+- Today, I recovered
+- Today, I took my dog for a few walks
+
 Saturday June 23th, 2024:
 - Today, I destroyed my sleep schedule due to illness
 - Today, I slept all day to recover
