@@ -1,5 +1,10 @@
 ### Today, I...
 #### June 2024
+Monday June 25th, 2024:
+- Today, I woke up at half noon
+- Today, I performed a great reset and got a lot done
+- Today, I did decent work and planned out the next couple weeks
+
 Sunday June 24th, 2024:
 - Today, I woke up at 4pm
 - Today, I recovered
