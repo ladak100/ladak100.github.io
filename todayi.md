@@ -1,18 +1,14 @@
 ### Today, I...
 #### June 2024
-Monday June 25th, 2024:
+Monday June 24th, 2024:
 - Today, I woke up at half noon
 - Today, I performed a great reset and got a lot done
 - Today, I did decent work and planned out the next couple weeks
 
-Sunday June 24th, 2024:
-- Today, I woke up at 4pm
+Sunday June 23th, 2024:
+- Today, I woke up at 4pm, completely obliterating my sleep schedule
 - Today, I recovered
 - Today, I took my dog for a few walks
-
-Saturday June 23th, 2024:
-- Today, I destroyed my sleep schedule due to illness
-- Today, I slept all day to recover
 
 Saturday June 22th, 2024:
 - Today, I completely fixed my sleep schedule
