@@ -1,5 +1,33 @@
 ### Today, I...
 #### June 2024
+Tuesday July 2th, 2024:
+- Today, I worked during the day
+- Today, I surprised my hrandparents in the evening. We had a big dinner together the six of us. Another awesome day
+- Today, I felt down at night while practicing the uke. Not sure if it was the dump after such a great time, or something else.
+
+Monday July 1th, 2024:
+- Today, I continued the camping trip with friends. Today was our last day :(. Best weather we had by far, just an A1 Sunny Summer Day. We got up late and packed up the campsite. On our way out, we stopped by to cliff jump near Eagle's Point. First time I'd jumped since I tore my pec doing it 7 years ago. climbed the cliffs and collected wild blueberries. Enjoyed the last bit of paradise before portaging back and driving home.
+- Today, I returned home, same time as my parents who had just finished their trip. Missed them so much. Glad the house was full again. Slept so well
+- Today, I had the perfect day. I would change nothing, and give everything to do it over again.
+
+Sunday June 30th, 2024:
+- Today, I continued the camping trip with friends. I woke up late. It spat rain on and off the whole morning. In the afternoon, we set out to catch a fish. We caught five and kept a smallie, a largie, and a perch. Spatroast then for dinner. The sun finally showed herself just as we arrived back at the site. It was amazing, cast hard shadows for the next hour, and soaked in every bit with a swim. The fish was overcooked. An amazing sunset. Last night
+
+Saturday June 29th, 2024:
+- Today, I camped at McCrae Lake with some friends. Its where I used to out trip 10 years ago when I went to camp Kitchikewana. I caught a pike, we portaged the wrong way, then eventually the right way from McDonald to McCrae. Saw a group of Ukranians camping and blasting trance. Had lunch on Elephant Rock. Set up shop on a perfect campsite. It was cloudy the whole day. At night, a massive thunderstorm rolled in. Wind and rain were biblical
+
+Friday June 28th, 2024:
+- Today, I packed for a camping trip and had a friend sleep over
+
+Thursday June 27th, 2024:
+- Today, I forgot to log
+
+Wednesday June 26th, 2024:
+- Today, I forgot to log
+
+Tuesday June 25th, 2024:
+- Today, I forgot to log
+
 Monday June 24th, 2024:
 - Today, I woke up at half noon
 - Today, I performed a great reset and got a lot done
