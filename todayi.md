@@ -1,5 +1,9 @@
 ### Today, I...
 #### June 2024
+Wednesday July 3th, 2024:
+- Today, I had a normal day
+- Today, I watched the holdovers in the evening with my mom. really nice movie
+
 Tuesday July 2th, 2024:
 - Today, I worked during the day
 - Today, I surprised my hrandparents in the evening. We had a big dinner together the six of us. Another awesome day
