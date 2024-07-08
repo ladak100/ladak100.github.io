@@ -1,5 +1,19 @@
 ### Today, I...
 #### June 2024
+Sunday July 7th, 2024:
+- Today, I did a """guided""" hot cold sauna ice bath thing with my mom and sister. the ice bath was dificult.
+- Today, I hung out with a friend i havent seen in two years
+- Today, I hung out with my family in the evening and gave my dad soem hokas
+
+Saturday July 6th, 2024:
+- Today, I went for a canned fish with a friend. fishing at a stocked pond saddest shidd ever. saw several diseased fish. caught two rainbow trout, went to his place and smoked them. took his dog for a walk in the ravine. went down into the sewers cause some teens were comjng up. hung out with him and another friend thats spending his second last week in toronto. awesome day
+
+Friday July 5th, 2024:
+- Today, I watched the Euro game with my family in little P. awesome day
+
+Thursday July 4th, 2024:
+- Today, I hung out with a friend in the evening. went to ridgeway plaza. 10/10 hijabis
+
 Wednesday July 3th, 2024:
 - Today, I had a normal day
 - Today, I watched the holdovers in the evening with my mom. really nice movie
