@@ -1,6 +1,15 @@
 ### Today, I...
 
 #### July 2024
+Wednesday July 10th, 2024:
+- Today, I flew baack to SFO. I got randomly checked again
+
+Tuesday July 9th, 2024:
+- Today, I did a lot of work during the day
+- Today, I helped a friend prep for an interview
+- Today, I met up with some friends for the last time before i leave and went to an israeli restaurant
+- Today, I met up with another set of friends i hadnt seen in a while to watch the last bit of the canada argentina game
+
 Monday July 8th, 2024:
 - Today, I stayed home while some construction and windhield replacement went on
 - Today, I went downtown to meet up with friends and continue planning chile trip in november
