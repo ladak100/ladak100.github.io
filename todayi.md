@@ -1,5 +1,6 @@
 ### Today, I...
-#### June 2024
+
+#### July 2024
 Monday July 8th, 2024:
 - Today, I stayed home while some construction and windhield replacement went on
 - Today, I went downtown to meet up with friends and continue planning chile trip in november
@@ -32,6 +33,7 @@ Monday July 1th, 2024:
 - Today, I returned home, same time as my parents who had just finished their trip. Missed them so much. Glad the house was full again. Slept so well
 - Today, I had the perfect day. I would change nothing, and give everything to do it over again.
 
+#### June 2024
 Sunday June 30th, 2024:
 - Today, I continued the camping trip with friends. I woke up late. It spat rain on and off the whole morning. In the afternoon, we set out to catch a fish. We caught five and kept a smallie, a largie, and a perch. Spatroast then for dinner. The sun finally showed herself just as we arrived back at the site. It was amazing, cast hard shadows for the next hour, and soaked in every bit with a swim. The fish was overcooked. An amazing sunset. Last night
 
