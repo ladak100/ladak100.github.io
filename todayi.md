@@ -1,5 +1,9 @@
 ### Today, I...
 #### June 2024
+Monday July 8th, 2024:
+- Today, I stayed home while some construction and windhield replacement went on
+- Today, I went downtown to meet up with friends and continue planning chile trip in november
+
 Sunday July 7th, 2024:
 - Today, I did a """guided""" hot cold sauna ice bath thing with my mom and sister. the ice bath was dificult.
 - Today, I hung out with a friend i havent seen in two years
