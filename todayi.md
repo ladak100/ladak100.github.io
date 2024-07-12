@@ -1,8 +1,18 @@
 ### Today, I...
 
 #### July 2024
+Friday July 12th, 2024:
+- Today, I woke up really early cayse of a nap gona wrong
+- Today, I napped at 9:20am and got instantly fried in my dream. i held this weed for a guy in a park and got instantly contact high, jelly legged and it woke me up
+
+Thursday July 11th, 2024:
+- Today, I had a busy day
+- Today, I went into the office to meet some new coworkers
+- Today, I felt a bit down. all that tome in toronto hit me now
+
 Wednesday July 10th, 2024:
 - Today, I flew baack to SFO. I got randomly checked again
+- Today, I did. some grocery shipping
 
 Tuesday July 9th, 2024:
 - Today, I did a lot of work during the day
