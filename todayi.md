@@ -1,9 +1,14 @@
 ### Today, I...
 
 #### July 2024
+Saturday July 13th, 2024
+- Today, I had deep sleep with lots of dreams. I slept 10 hours
+
 Friday July 12th, 2024:
 - Today, I woke up really early cayse of a nap gona wrong
 - Today, I napped at 9:20am and got instantly fried in my dream. i held this weed for a guy in a park and got instantly contact high, jelly legged and it woke me up
+- Today, my grandpa was admitted to hospital for high blood pressure. at high risk of stroke.
+- Today, I went to bed at 11pm
 
 Thursday July 11th, 2024:
 - Today, I had a busy day
