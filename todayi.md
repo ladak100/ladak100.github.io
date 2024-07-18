@@ -1,7 +1,25 @@
 ### Today, I...
 
 #### July 2024
-Saturday July 13th, 2024
+Thursday July 18th, 2024:
+
+
+Wednesday July 17th, 2024:
+- Today, I attended the second day of the IP meeting
+- Today, I did a lot of work
+
+Tuesday July 16th, 2024:
+- Today, I had an in person conference during the day
+- Today, I was very productive
+- Today, I had a dinner in the evening with colleagues. i didnt enjoy many of the conversations, but i was natural - its becomign easier and easier with practice
+
+Monday July 15th, 2024:
+- Today, I forgot to log
+
+Sunday July 14th, 2024:
+- Today, I forgot to log. But i did a lot of work
+
+Saturday July 13th, 2024:
 - Today, I had deep sleep with lots of dreams. I slept 10 hours
 
 Friday July 12th, 2024:
