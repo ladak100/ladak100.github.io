@@ -1,8 +1,18 @@
 ### Today, I...
 
 #### July 2024
-Thursday July 18th, 2024:
+Sunday July 21th, 2024:
+- Today, I went to Rancho San Antonio with an old roommate. hiked for a while, then biked for a bit. then went to jack in the box. it was an okay day, my head was kind of out of it.
 
+Saturday July 20th, 2024:
+- Today, I did a lot of work
+
+Friday July 19th, 2024:
+- Today, I did a lot of work
+- Today, I went to go watch the humpback whales at the pacifica pier. 100m from the pier, multiple breaches, the A1 moment was when three breached in sync aside one another. somehow sunny in pacifica. also saw some brotha in a shiesty mask catch a 40in striped bass off the pier. I had never seen a whale in my life. beautiful. 10/10 day
+
+Thursday July 18th, 2024:
+- Today, I forgot to log
 
 Wednesday July 17th, 2024:
 - Today, I attended the second day of the IP meeting
