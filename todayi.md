@@ -1,6 +1,16 @@
 ### Today, I...
 
 #### July 2024
+
+Tuesday July 23th, 2024:
+- Today, I loafted hard in the morning
+- Today, I worked hard in the afternoon
+- Today, I had my dental cleaning. I had a massive stomach ache from swallowing copious amounts fluoride since i tried to "relax" this cleaning. I relaxed too hard
+
+Monday July 22th, 2024:
+- Today, I did a lot of work
+- Today, I called a friend and talked for a while
+
 Sunday July 21th, 2024:
 - Today, I went to Rancho San Antonio with an old roommate. hiked for a while, then biked for a bit. then went to jack in the box. it was an okay day, my head was kind of out of it.
 
