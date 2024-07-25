@@ -6,6 +6,7 @@ Wednesday July 24th, 2024:
 - Today, I had lowish productivity. I have to do powerpoints and technical writing, both of which i despise. getting started will be tricky
 - Today, I went for happy hour with colleagues. i didnt enjoy it very much
 - Today, I had an HR screening for a job in an industry i like. too bad the job sounded boring and in shartland
+- Today, I felt really down. likely from the anxiety of the technical writing and powerpoint
 
 Tuesday July 23th, 2024:
 - Today, I loafted hard in the morning
