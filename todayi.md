@@ -1,6 +1,40 @@
 ### Today, I...
 
+#### August 2024
+Friday August 2th, 2024:
+- Today, I worked a lot
+- Today, I did a lot of chores to get back on track
+
+Thursday August 1th, 2024:
+- Today, I talked with my friend since he failed the onsite.
+- Today, I worked a lot. unmemorable and forgot to log
+- Today, I went to the gym for the first time in a while
+
 #### July 2024
+Wednesday July 31th, 2024:
+- Today, I worked a lot. unmemorable and forgot to log
+
+Tuesday July 30th, 2024:
+- Today, I worked a lot. things are getting very busy at work.
+
+Monday July 29th, 2024:
+- Today, I worked a lot
+- Today, I met up with the onsite friend and we swam for a few hours after his interview. That was nice.
+
+Sunday July 28th, 2024:
+- Today, I worked at Stanford with a friend while he prepped for the interview
+
+Saturday July 27th, 2024:
+- Today, I hung out with a couple friends all day coming for an onsite
+
+Friday July 26th, 2024:
+- Today, I went to work from a hookah bar with a friend
+- Today, I went out to dinner with a friend and two new people at a overpriced indian place called amber. NOT WORTH!!!!!
+- Today, I took a waymo to north beach barhopping with giganormies. i didnt enjoy it but im glad i tried it. i walked in circles at the "club" and went to the bathroom 10 times. The end was the silver lining, almost caught up to some individuals on the way to a takeover, but i cant run still cause of this bullshit titanium rod
+
+Thursday July 25th, 2024:
+- Today, I forgot to log
+
 Wednesday July 24th, 2024:
 - Today, I wrnt into the office
 - Today, I had lowish productivity. I have to do powerpoints and technical writing, both of which i despise. getting started will be tricky
