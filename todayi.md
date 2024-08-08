@@ -1,6 +1,26 @@
 ### Today, I...
 
 #### August 2024
+Wednesday August 7th, 2024:
+- Today, I went to the gym, there were 4 people in there for the first time
+- Today, I did a lot of work
+- Today, I went to InNOut for dinner
+
+Tuesday August 6th, 2024:
+- Today, I talked to a friend, pretty unhappy with the low response rate from job applications
+- Today, I worked hard
+
+Monday August 5th, 2024:
+- Today, I went to the gym
+- Today, I worked hard
+
+Sunday August 4th, 2024:
+- Today, I forgot to log
+
+Saturday August 3th, 2024:
+- Today, I frogot what i did for most of the dat
+- Today, I went to Dolores Park for the first time. some boricua grandma spoke to me about used clothing for an hour. the park was very nice too
+
 Friday August 2th, 2024:
 - Today, I worked a lot
 - Today, I did a lot of chores to get back on track
