@@ -4,6 +4,7 @@
 Wednesday August 7th, 2024:
 - Today, I went to the gym, there were 4 people in there for the first time
 - Today, I did a lot of work
+- Today, I talked with my surgeon about getting the metal out of my leg
 - Today, I went to InNOut for dinner
 
 Tuesday August 6th, 2024:
